@@ -12,6 +12,6 @@ So I want to all these installations certainly revealed the influence of  J.Cage
 
 00:42:04 
 
-This is a wonderful self reflexive piece, it’s a variant on the kind of texts scores, that through fluxus and conceptual art became prominent  in the 1960s. This piece consists simply of four sentence description of it’s process, written on a tape recorder and playback in the room repeatedly, until  the resident frequencies characteristics  of that particular space, amplify on another overwhelm the sounds of speech. This is  the text an I am gonna play you first of the full text, actually I’ll play you part of the texts, and then I’ll play you the various iterations as it goes along. So the texts , the original texts sound something like this…
+This is a wonderful self reflexive piece, it’s a variant on the kind of texts scores, that through fluxus and conceptual art became prominent  in the 1960s. This piece consists simply of four sentence description of it’s process, written on a tape recorder and playback in the room repeatedly, until  the resident frequencies characteristics  of that particular space, amplify on another overwhelm the sounds of speech. This is  the text an I am gonna play you first of the full text, actually I’ll play you part of the texts, and then I’ll play you the various iterations as it goes along. So the texts, the original texts sound something like this…
 
 00:42:52  
