@@ -1,4 +1,4 @@
-# ADA2019009_ZOI_ZIPELA_20200521
+# ADA2019009_Zoi_Zipela_20200521
 Recording Christoph Cox's lecture from 00:35:40 to 00:42:53
 
 00:36:11
